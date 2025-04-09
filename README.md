@@ -4,6 +4,6 @@ TikTok成人版是一款备受欢迎的成人网站，吸引了无数宅男的�
 - 👀 永久免费地址 [Tiktok成人版](https://tksex.com)
 - 🌱 免费无限观看免翻墙地址  
 - 😄 https://6c079.mhxgfkmh.cc
-- 💞️ 最新免翻墙地址   https://tksex.com
+- 💞️ 最新免翻墙地址   https://tkcr.net
 - 📫 发送任意信件到回家邮箱 yeqi451@gmail.com
  
